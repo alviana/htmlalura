@@ -14,4 +14,4 @@
 
 ### Alexandre Viana
 
-### Linkedin: [https://www.linkedin.com/school/aluracursos/](https://www.linkedin.com/in/alexandre-leitao-viana-847b23171/)
+### Linkedin: [https://www.linkedin.com/in/alexandre-leitao-viana-847b23171/](https://www.linkedin.com/in/alexandre-leitao-viana-847b23171/)
